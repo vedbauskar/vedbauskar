@@ -7,7 +7,7 @@ _vedbauskar.com_  <br><br><br><br><br><br><br>
 
 
   
-_veni vidi vici._
+_memento mori._
 
 
 

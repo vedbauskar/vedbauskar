@@ -1,6 +1,15 @@
 ## 👋
 ### what do mortals with power desire the most
-* *more power* *
+
+_more power_
+
+
+next 3 years at USC
+vedbauskar.com
+
+
+
+
 
 <!--
 **vedbauskar/vedbauskar** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

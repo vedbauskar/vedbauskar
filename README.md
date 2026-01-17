@@ -2,13 +2,12 @@
 
 I'm a recent admit at USC majoring in Data Science and Economics. 
 Feel free to reach out!  
-_vedbauskar.com_
+_vedbauskar.com_  <br><br><br><br><br><br><br>
 
 
 
-
-what do mortals with power desire the most  
-more power
+  
+_veni vidi vici._
 
 
 

@@ -2,7 +2,7 @@
 
 I'm a recent admit at USC majoring in Data Science and Economics. 
 Feel free to reach out!  
-_vedbauskar.com_  <br><br><br><br><br><br><br>
+vedbauskar.com  <br><br><br><br><br><br><br><br>
 
 
 

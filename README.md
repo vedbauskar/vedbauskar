@@ -1,7 +1,4 @@
 ## 👋
-
-I have no idea what I'm doing.   
-Feel free to reach out!  
 vedbauskar.com  <br><br><br><br><br><br><br><br>
 
 
